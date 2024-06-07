@@ -1,6 +1,9 @@
 ## Hi there 👋 
+
 sou a Ariane e estou no GitHub,
+
 curso ensino médio na escola Professor Doutor Laerte Ramos De Carvalho.
+
 ###voce entrar em contato comigo 📧
 00001116841885sp@al.educacao.sp.gov.br
 
