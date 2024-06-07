@@ -1,6 +1,6 @@
 ## Hi there 👋 
 
-sou a Ariane e estou no GitHub,
+sou a Ariane estou no GitHub,
 
 curso ensino médio na escola Professor Doutor Laerte Ramos De Carvalho.
 
